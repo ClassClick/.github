@@ -1,2 +1,2 @@
 # ClassClick
-> Quality education is our priority
+> Quality education is our passion
